@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on iRPA 2.0
 - 🤔 I’m looking for help with JS
 - 💬 Ask me about technical stuff in SAP domain
-- 📫 How to reach me: sapparamount@gmail.com
+- 📫 How to reach me: ✉ sapparamount@gmail.com
 - ✍ Website: www.ABAPer.weebly.com
-- ⚡ Fun fact: I am rapper and footballer, Can sing Thai songs as well.
+- ⚡ Fun fact: ✪ Rapper ✪ Footballer ✪ Sing Thai songs ✪ Speaks German ✪
